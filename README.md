@@ -1,1 +1,0 @@
-# Turkce-Turkce__Sozluk
